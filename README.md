@@ -9,3 +9,39 @@ Quiero profundizar en arquitectura de software y patrones de diseño 🏛️, po
 
 Un detalle interesante es que, según un test vocacional, la ciberseguridad 🔓 también podría ser un buen camino para mí. Aunque mi enfoque principal es el backend, me motiva aprender más sobre seguridad informática para desarrollar aplicaciones más protegidas y eficientes. Esto me ha dado una mejor visión sobre mi camino profesional y en qué debo mejorar.
 
+💡 Mapa de fortalezas y pasiones
+Lo que sé hacer bien (habilidades):
+Resolver problemas de lógica y estructurar datos.
+
+Programar en backend con Django y Spring Boot.
+
+Optimizar bases de datos y mejorar el rendimiento de consultas.
+
+Trabajar con APIs y diseñar arquitecturas escalables.
+
+Lo que disfruto hacer (pasiones):
+Construir sistemas robustos y eficientes.
+
+Analizar datos y mejorar la seguridad en las aplicaciones.
+
+Aprender sobre ciberseguridad y protección de datos.
+
+Experimentar con nuevas tecnologías en el backend.
+
+Lo que me gustaría aprender (curiosidades):
+Arquitectura de software y patrones de diseño.
+
+Microservicios y orquestación con Docker y Kubernetes.
+
+Seguridad en API y autenticación avanzada.
+
+Implementación de soluciones en la nube.
+
+🌟 Áreas del software que más se relacionan:
+
+Backend development 🖥️
+
+Ciberseguridad 🔒
+
+Arquitectura de software 🏗️
+
