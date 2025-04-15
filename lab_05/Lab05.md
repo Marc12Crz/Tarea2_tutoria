@@ -20,6 +20,14 @@ Realiza lo siguiente con un compañero/a:
 Fortalezas en momentos difíciles: Comparte una experiencia en la que hayas sentido que nada tenía sentido y cómo lo superaste. Reflexiona sobre las lecciones aprendidas.
 Escuchar con empatía: Escucha las experiencias de tu compañero/a y reflexiona sobre cómo el compartir estos momentos ayuda a encontrar propósito y claridad.
 
+Hubo un momento en el que sentí que nada tenía sentido. Estaba abrumado por las expectativas y me sentía perdido. Lo que me ayudó a superarlo fue tomarme un tiempo para reflexionar y hablar con amigos. Me di cuenta de que no tenía que tener todas las respuestas de inmediato y que pequeños logros eran un paso hacia adelante. Aprendí que es importante ser paciente conmigo mismo, buscar apoyo cuando lo necesito, y recordar que no todo tiene que resolverse de una vez.
+
+Lecciones aprendidas:
+1. Tomarse un tiempo para reflexionar es clave.
+2. Celebrar los pequeños logros ayuda a avanzar.
+3. La paciencia y la autocompasión son fundamentales.
+4. Buscar apoyo en otros puede traer claridad.
+
 
 Compañero:Jose Chalco Rosales 
 
