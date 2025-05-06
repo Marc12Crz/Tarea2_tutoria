@@ -10,7 +10,7 @@ Soy de los que tiende a callarse o evadir el conflicto para no generar más lío
 Después me siento fatal 😔. Me pongo a pensar en todo lo que pude haber dicho o hecho mejor, y me arrepiento de no haber manejado la situación de otra manera.
 
 **🌈 ¿Qué persona admiro por cómo resuelve conflictos y por qué?**
-Admiro a mi hermana mayor. Siempre se mantiene tranquila y sabe cómo escuchar sin juzgar. Cuando hay un conflicto, sabe cómo resolverlo de forma tan pacífica y con mucho respeto. Es como una ninja de la paz 😎✌️.
+Admiro mucho al profesor Eliot. Siempre se mantiene calmado y tiene una increíble habilidad para escuchar sin juzgar. En cualquier situación tensa, sabe cómo intervenir y mediar para que todo se resuelva de manera justa y respetuosa. ¡Es como un experto en paz! 😎✌️.
 
 ---
 
