@@ -1,33 +1,29 @@
-✍️ Parte 1: 📊 Bitácora de mitad de ciclo
+💌 Parte 1: Carta desde la compasión
 
+“Deja de autosabotearte porque mereces intentarlo sin miedo…”
 
-🔍 ¿Qué aprendizajes o avances personales reconozco hasta ahora?
+Hola Cristhian,
 
-He mejorado mucho en mi capacidad para resolver problemas técnicos por mi cuenta. Ya no me frustro tan rápido cuando algo no funciona, y sé buscar soluciones en documentación o foros. También me he dado cuenta de que he aprendido a organizar mejor mi tiempo, aunque aún me falta pulir algunos aspectos.
+Sé que muchas veces te has saboteado por miedo al fracaso, al qué dirán o por sentir que no estás preparado. Pero quiero que sepas que mereces intentarlo, incluso si hay miedo, incluso si no es perfecto. Ese perfeccionismo que cargas no es una virtud, es una trampa que te detiene.
 
-💼 ¿Qué retos me han costado más y por qué?
+🧠 ¿Qué miedo o creencia está bloqueando tus decisiones?
+El miedo que más me bloquea es sentir que no soy suficiente, que no estoy al nivel o que voy a decepcionar a los demás. Esa creencia me frena antes siquiera de dar el primer paso.
 
-Me ha costado bastante mantener la constancia en algunos proyectos o entregas, especialmente cuando hay varias tareas acumuladas. A veces procrastino o me distraigo fácilmente, y eso me genera presión de último momento. Creo que es por no tener una rutina sólida o por no dividir bien el trabajo.
+🔎 ¿Qué parte de ti necesita más comprensión y no más exigencia?
+La parte de mí que más necesita comprensión es mi yo inseguro, el que aún se siente un niño comparándose con los demás. No necesita que le griten más fuerte, necesita que lo abracen y le digan “estás haciendo lo mejor que puedes”.
 
+💬 ¿Qué te dirías si fueras tu mejor amigo?
+Si fuera mi mejor amigo, me diría: “Cristhian, estás creciendo. No tienes que saberlo todo ni hacerlo perfecto. Mereces avanzar, equivocarte, aprender y volver a intentarlo. Estoy orgulloso de ti solo por intentarlo. Sigue, incluso con miedo 💪❤️.”
 
-🧠 ¿Qué emociones han sido frecuentes en mis días? ¿Cómo las gestiono?
+⸻
 
-He sentido bastante estrés, a veces mezclado con ansiedad cuando se acercan las fechas de entrega. También me ha pasado que me siento frustrado cuando un código no funciona. Para manejarlo, trato de tomar pausas, escuchar música o salir a caminar. A veces también hablo con compañeros para desahogarme o aclarar dudas.
+🔁 Parte 2: Reencuadre del error
 
+❌ Error o decisión que me marcó:
+No presentarme a una exposición por miedo a equivocarme y hacer el ridículo delante de todos.
 
-🛠️ ¿Qué cambiaría si volviera a empezar este ciclo hoy?
+🔄 Lo que aprendí con el tiempo:
+Aprendí que el miedo no se va con el tiempo si solo lo evito. Se va enfrentándolo. Me di cuenta de que cuando me animo a actuar, aunque tenga miedo, me siento más fuerte y más libre.
 
-Definitivamente intentaría organizarme mejor desde el primer día. Haría un calendario desde el principio y planearía los proyectos grandes con más tiempo. También buscaría ayuda más temprano en lugar de esperar a último minuto.
-
-
-🚀 Parte 2: 🎯 Mi nuevo plan de acción
-
-
-✅ Meta personal o académica para las siguientes semanas:
-Mejorar mi productividad diaria para entregar tareas sin atrasos y con más calidad.
-
-🔁 Hábito que voy a incorporar o fortalecer:
-Dedicar al menos 30 minutos cada noche a repasar o avanzar en proyectos del ciclo, incluso si no hay algo urgente.
-
-🌈 Compromiso conmigo mismo:
-Ser más paciente con mi proceso de aprendizaje y no compararme con los demás. Cada quien va a su ritmo.
+🌱 Mi nuevo compromiso personal:
+Mi nuevo compromiso es avanzar aunque dude. Mostrarme, hablar, participar, incluso si siento inseguridad. Merece más quien lo intenta que quien se queda esperando el momento perfecto. Yo elijo avanzar, con miedo y todo.
