@@ -1,29 +1,34 @@
-💌 Parte 1: Carta desde la compasión
+✍️ Parte 1: Reconociendo señales 🔦
+😮‍💨 ¿Cuáles son las primeras señales de que estás llegando a tu límite mental o emocional?
 
-“Deja de autosabotearte porque mereces intentarlo sin miedo…”
+Me cuesta concentrarme en las clases o tareas.
 
-Hola Cristhian,
+Me siento irritable con facilidad.
 
-Sé que muchas veces te has saboteado por miedo al fracaso, al qué dirán o por sentir que no estás preparado. Pero quiero que sepas que mereces intentarlo, incluso si hay miedo, incluso si no es perfecto. Ese perfeccionismo que cargas no es una virtud, es una trampa que te detiene.
+Me duele la cabeza o siento pesadez mental.
 
-🧠 ¿Qué miedo o creencia está bloqueando tus decisiones?
-El miedo que más me bloquea es sentir que no soy suficiente, que no estoy al nivel o que voy a decepcionar a los demás. Esa creencia me frena antes siquiera de dar el primer paso.
+Pierdo la motivación y empiezo a procrastinar más de lo normal.
 
-🔎 ¿Qué parte de ti necesita más comprensión y no más exigencia?
-La parte de mí que más necesita comprensión es mi yo inseguro, el que aún se siente un niño comparándose con los demás. No necesita que le griten más fuerte, necesita que lo abracen y le digan “estás haciendo lo mejor que puedes”.
+🧠 ¿Qué prácticas (aunque pequeñas) te han ayudado a sentirte mejor últimamente?
 
-💬 ¿Qué te dirías si fueras tu mejor amigo?
-Si fuera mi mejor amigo, me diría: “Cristhian, estás creciendo. No tienes que saberlo todo ni hacerlo perfecto. Mereces avanzar, equivocarte, aprender y volver a intentarlo. Estoy orgulloso de ti solo por intentarlo. Sigue, incluso con miedo 💪❤️.”
+Escuchar música relajante mientras estudio.
 
-⸻
+Caminar 15 minutos después de almorzar.
 
-🔁 Parte 2: Reencuadre del error
+Hablar con un amigo cercano cuando me siento abrumado.
 
-❌ Error o decisión que me marcó:
-No presentarme a una exposición por miedo a equivocarme y hacer el ridículo delante de todos.
+Organizar mi día en una lista simple para no sentirme perdido.
 
-🔄 Lo que aprendí con el tiempo:
-Aprendí que el miedo no se va con el tiempo si solo lo evito. Se va enfrentándolo. Me di cuenta de que cuando me animo a actuar, aunque tenga miedo, me siento más fuerte y más libre.
+🔁 ¿Cómo afecta tu bienestar emocional a tu desempeño en clases o proyectos?
+Cuando me siento emocionalmente mal, me cuesta enfocarme y entender los temas. Siento que todo se vuelve más difícil de lo que realmente es. En cambio, cuando me siento bien, soy más productivo, creativo y me organizo mejor.
 
-🌱 Mi nuevo compromiso personal:
-Mi nuevo compromiso es avanzar aunque dude. Mostrarme, hablar, participar, incluso si siento inseguridad. Merece más quien lo intenta que quien se queda esperando el momento perfecto. Yo elijo avanzar, con miedo y todo.
+💆 Parte 2: Mini plan de autocuidado emocional 💡
+📌 Alerta emocional más frecuente que quiero atender:
+Agotamiento mental después de clases.
+
+🌈 Acción sencilla de bienestar que implementaré esta semana:
+Tomar 10 minutos al terminar clases para desconectarme: apagar la pantalla, estirarme y hacer respiración profunda.
+
+🧭 Recordatorio que me diré cuando sienta estrés:
+"Estoy aprendiendo, no tengo que hacerlo todo perfecto. Paso a paso es suficiente."
+
