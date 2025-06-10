@@ -1,34 +1,34 @@
-✍️ Parte 1: Reconociendo señales 🔦
-😮‍💨 ¿Cuáles son las primeras señales de que estás llegando a tu límite mental o emocional?
+✍️ Parte 1: Diario de transformación
+🪞 ¿Quién era yo al comenzar este ciclo?
+Al inicio de este ciclo era alguien con muchas dudas y miedos silenciosos. Me preocupaba cometer errores, decepcionar a los demás o no estar a la altura de las expectativas. Sentía una mezcla de entusiasmo y ansiedad, y muchas veces me costaba confiar en mi voz interior.
 
-Me cuesta concentrarme en las clases o tareas.
+🔁 ¿Qué ha cambiado en mi forma de actuar, pensar o relacionarme?
+He aprendido a darme más permiso para equivocarme y a ver los errores como parte del crecimiento. Ahora escucho más activamente, tanto a los demás como a mí mismo. Me relaciono desde un lugar más auténtico, sin necesidad de aparentar seguridad cuando no la siento.
 
-Me siento irritable con facilidad.
+🌟 ¿Qué fue lo más valioso que aprendí sobre mí mism@?
+Descubrí que soy más resiliente de lo que pensaba. Que tengo recursos internos para enfrentar situaciones difíciles, y que cuando me permito ser vulnerable, conecto más genuinamente con los demás.
 
-Me duele la cabeza o siento pesadez mental.
+💡 ¿Estoy más cerca de lo que quiero ser o lograr?
+Sí. No porque ya haya llegado a una meta concreta, sino porque ahora tengo más claridad sobre lo que quiero, más herramientas para avanzar y más confianza en mi capacidad de construirlo paso a paso.
 
-Pierdo la motivación y empiezo a procrastinar más de lo normal.
+📸 Parte 2: Mi línea del tiempo emocional
+📍 Inicio del ciclo
+💬 Me sentí: Inseguro pero con ilusión.
+🎯 Aprendí: Que los comienzos siempre traen miedo, y eso está bien.
 
-🧠 ¿Qué prácticas (aunque pequeñas) te han ayudado a sentirte mejor últimamente?
+📍 Primer obstáculo importante
+💬 Me sentí: Frustrado y con dudas.
+🎯 Aprendí: Que puedo seguir adelante incluso cuando las cosas no salen como espero.
 
-Escuchar música relajante mientras estudio.
+📍 Un momento de conexión personal profunda
+💬 Me sentí: Acompañado y comprendido.
+🎯 Reafirmé: Que abrirme a los demás me fortalece, no me debilita.
 
-Caminar 15 minutos después de almorzar.
+📍 Reconocer un logro personal
+💬 Me sentí: Orgulloso y sorprendido de mí mismo.
+🎯 Aprendí: Que soy capaz de más de lo que creía.
 
-Hablar con un amigo cercano cuando me siento abrumado.
-
-Organizar mi día en una lista simple para no sentirme perdido.
-
-🔁 ¿Cómo afecta tu bienestar emocional a tu desempeño en clases o proyectos?
-Cuando me siento emocionalmente mal, me cuesta enfocarme y entender los temas. Siento que todo se vuelve más difícil de lo que realmente es. En cambio, cuando me siento bien, soy más productivo, creativo y me organizo mejor.
-
-💆 Parte 2: Mini plan de autocuidado emocional 💡
-📌 Alerta emocional más frecuente que quiero atender:
-Agotamiento mental después de clases.
-
-🌈 Acción sencilla de bienestar que implementaré esta semana:
-Tomar 10 minutos al terminar clases para desconectarme: apagar la pantalla, estirarme y hacer respiración profunda.
-
-🧭 Recordatorio que me diré cuando sienta estrés:
-"Estoy aprendiendo, no tengo que hacerlo todo perfecto. Paso a paso es suficiente."
+📍 Cierre del ciclo
+💬 Me sentí: Más claro, más seguro, más en paz.
+🎯 Reafirmé: Que el proceso importa tanto como el resultado. Estoy creciendo, y eso ya es un logro.
 
