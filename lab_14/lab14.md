@@ -1,34 +1,32 @@
-✍️ Parte 1: Diario de transformación
-🪞 ¿Quién era yo al comenzar este ciclo?
-Al inicio de este ciclo era alguien con muchas dudas y miedos silenciosos. Me preocupaba cometer errores, decepcionar a los demás o no estar a la altura de las expectativas. Sentía una mezcla de entusiasmo y ansiedad, y muchas veces me costaba confiar en mi voz interior.
+✍️ Parte 1: Escuchando a mi cuerpo mientras aprendo
+🧘‍♀️ ¿Cómo se sintió tu cuerpo durante la actividad física realizada?
+Durante la actividad física sentí una mezcla de esfuerzo y liberación. Al principio, mis músculos se sentían algo rígidos, pero conforme avanzaba la rutina, mi cuerpo se sintió más suelto y ligero. El sudor me ayudó a liberar tensión.
 
-🔁 ¿Qué ha cambiado en mi forma de actuar, pensar o relacionarme?
-He aprendido a darme más permiso para equivocarme y a ver los errores como parte del crecimiento. Ahora escucho más activamente, tanto a los demás como a mí mismo. Me relaciono desde un lugar más auténtico, sin necesidad de aparentar seguridad cuando no la siento.
+🧠 ¿Hubo alguna diferencia en tu energía o enfoque después de moverte?
+Sí, noté que después de moverme tenía más claridad mental y mejor disposición para concentrarme. Sentía menos pesadez, lo cual me ayudó a enfocarme mejor en mis tareas.
 
-🌟 ¿Qué fue lo más valioso que aprendí sobre mí mism@?
-Descubrí que soy más resiliente de lo que pensaba. Que tengo recursos internos para enfrentar situaciones difíciles, y que cuando me permito ser vulnerable, conecto más genuinamente con los demás.
+📉 ¿Notas signos de fatiga o tensión cuando estudias mucho tiempo seguido?
+Sí, cuando paso muchas horas seguidas estudiando o en la computadora, mi espalda y cuello se tensionan, y mi energía decae. También me cuesta retener información después de cierto punto.
 
-💡 ¿Estoy más cerca de lo que quiero ser o lograr?
-Sí. No porque ya haya llegado a una meta concreta, sino porque ahora tengo más claridad sobre lo que quiero, más herramientas para avanzar y más confianza en mi capacidad de construirlo paso a paso.
+🌤️ ¿Cómo podrías integrar más movimiento en tu rutina sin dejar de ser productiv@?
+Podría tomar pausas activas cada hora, hacer estiramientos breves o caminatas cortas. También puedo aprovechar los trayectos caminando o usar las escaleras. Incluso, puedo estudiar escuchando audiolecciones mientras camino.
 
-📸 Parte 2: Mi línea del tiempo emocional
-📍 Inicio del ciclo
-💬 Me sentí: Inseguro pero con ilusión.
-🎯 Aprendí: Que los comienzos siempre traen miedo, y eso está bien.
+🚀 Parte 2: Plan personal de bienestar físico
+✅ Actividad física ligera que puedes mantener semanalmente:
 
-📍 Primer obstáculo importante
-💬 Me sentí: Frustrado y con dudas.
-🎯 Aprendí: Que puedo seguir adelante incluso cuando las cosas no salen como espero.
+Caminatas de 30 minutos
 
-📍 Un momento de conexión personal profunda
-💬 Me sentí: Acompañado y comprendido.
-🎯 Reafirmé: Que abrirme a los demás me fortalece, no me debilita.
+Estiramientos después de las clases o el estudio
 
-📍 Reconocer un logro personal
-💬 Me sentí: Orgulloso y sorprendido de mí mismo.
-🎯 Aprendí: Que soy capaz de más de lo que creía.
+Subir y bajar escaleras en lugar de usar el ascensor
 
-📍 Cierre del ciclo
-💬 Me sentí: Más claro, más seguro, más en paz.
-🎯 Reafirmé: Que el proceso importa tanto como el resultado. Estoy creciendo, y eso ya es un logro.
+💡 Razón personal para mantener este hábito:
+Quiero evitar tensiones musculares por el tiempo que paso sentado, mantenerme activo para sentirme más ligero, y mejorar mi enfoque al estudiar y programar.
 
+📅 Horario tentativo sugerido:
+
+Lunes, miércoles y viernes a las 6:00 p. m. (caminatas después de estudiar)
+
+Estiramientos breves al levantarme y antes de dormir (todos los días)
+
+Pausas activas de 5 minutos cada hora de estudio o trabajo
